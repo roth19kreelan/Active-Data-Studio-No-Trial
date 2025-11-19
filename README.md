@@ -1,0 +1,1 @@
+# Active-Data-Studio-No-Trial
